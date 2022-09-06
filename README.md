@@ -4,7 +4,7 @@
 - 👀 I’m interested in Geothermal exploration and Geological structures
 - 🌱 I’m currently learning geophysical computational methods
 - 📫 How to reach me on instagram (@chritytessa) and LinkedIn (www.linkedin.com/in/christytessa)
-![Screenshot (1437)](https://user-images.githubusercontent.com/111741877/188676247-418d2025-48ce-4e96-800c-6e47f4d56437.png)
+
 
 
 <!---
