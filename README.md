@@ -1,4 +1,4 @@
-![image](https://user-images.githubusercontent.com/111741877/188675618-0bfb45b7-cf0b-44ca-a319-efdd6445681e.png)
+![tumblr_d20491cd87347338a4dee2752ab2ebb8_bc097127_640](https://user-images.githubusercontent.com/111741877/188682861-10d0782c-9ddd-407a-b47c-9603f1bc6394.gif)
 
 - 👋 Hi, I’m @christytessa I am currently studying at Gadjah Mada University majoring in Geophysics
 - 👀 I’m interested in Geothermal exploration and Geological structures
